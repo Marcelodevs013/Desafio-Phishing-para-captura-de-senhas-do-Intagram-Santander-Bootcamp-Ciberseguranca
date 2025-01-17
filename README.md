@@ -20,3 +20,4 @@
 ### Resutados
 ![WhatsApp Image 2025-01-08 at 06 46 15](https://github.com/user-attachments/assets/b9481541-9f6a-4cab-988c-197a9432bfe7)
 ![WhatsApp Image 2025-01-08 at 06 46 15 (1)](https://github.com/user-attachments/assets/5fbaa423-7a3d-4c72-ab98-459ef22df393)
+![Atividade-sugerida-Semana-01](https://github.com/user-attachments/assets/e9bc81f9-adf8-4a93-83a1-2d5bab90651c)
